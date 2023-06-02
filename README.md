@@ -1,1 +1,1 @@
-Just two weeks in and I'm loving ALX SE
+Just two weeks in and I'm loving the ALX Software Engineering Program
